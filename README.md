@@ -6,4 +6,4 @@ You can check smart contract and backend repo as well.
 
 You can contact me if you want a better product.
 
-Telegram: https://t.me/frankykevin
+Telegram: https://t.me/frankiekevin
